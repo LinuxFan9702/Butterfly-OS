@@ -4,7 +4,7 @@
 
 ###### some things noted
 
-
+< Download page!> https://www.mediafire.com/file/r140ee4614kkxtw/egg-of-debian-trixie-butterfly-os-amd64-2026-07-29_2210.iso/file
 1.This is Open Source (As I don't think many people will See this anyways)
 
 
