@@ -19,6 +19,7 @@
 
 4.Like I said I don't think many people if any see this but this is not meant to harm anyone or anything 
 
+5.I might not be a able to work on it a lot as I need to work on stuff ouside of this. and I dont have a team so updates gonna be slow,
 
 Also Unitled desgin.png is the background of the os, the origal img is from https://www.publicdomainpictures.net/en/hledej.php?hleda=handmade+penguin+butterfly&origin=people and isnt copyrighted I dont think, I want to give propper credit!
 with that enjoy!
